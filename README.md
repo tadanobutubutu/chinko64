@@ -9,7 +9,7 @@ https://tadanobutubutu.github.io/chinko64/
 ![thumbnail](thumbnail.png)
 
 
-![image](https://github.com/user-attachments/assets/23aa4684-a0d6-48f4-b886-394f4a8137f2)
+![image](screenshot.png)
 
 
 # パイズリと恥垢と恥垢と蛆虫とパイズリと子宮とフェラと顔射とパイズリと子宮と精液とごっくんとパイズリと恥垢と恥垢と涎とパイズリと恥垢と口淫と涎とパイズリと子宮と肉便器と蛆虫とパイズリと恥垢と恥垢と蛆虫とパイズリと子宮と精液とごっくんとパイズリと恥垢とイラマと口淫とパイズリと恥垢と恥垢と蛆虫とパイズリと恥垢と足淫と蛆虫とパイズリと恥垢と口淫と死体
