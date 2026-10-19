@@ -6,7 +6,7 @@ https://tadanobutubutu.github.io/chinko64/
 <br>
 
 
-![thumbnail](https://user-images.githubusercontent.com/42578480/204034367-a6712345-3117-4434-a85d-ad283b846cbd.png)
+![thumbnail](thumbnail.png)
 
 
 ![image](https://github.com/user-attachments/assets/23aa4684-a0d6-48f4-b886-394f4a8137f2)
